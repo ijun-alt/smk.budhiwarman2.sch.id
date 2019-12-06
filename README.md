@@ -1,1 +1,0 @@
-# smk.budhiwarman2.sch.id
